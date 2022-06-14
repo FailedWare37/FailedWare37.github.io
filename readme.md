@@ -1,4 +1,4 @@
-### Yes this is best website
+### Minions Funny Central / FailedWare37
 
-Github taking 5 billion years to re-deploy the website. 
-Sites broken as fuck right now wait 5 billion years for big daddy Bill Gates to let me re-deploy the page.
+- Includes Minion memes for the cool kids
+- Includes my dumbass
