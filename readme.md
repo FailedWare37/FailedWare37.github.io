@@ -1,4 +1,4 @@
-### Minions Funny Central
+### Minions Funny Central.
 
 - Includes Minion memes for the cool kids
 - Includes my shitty coding
